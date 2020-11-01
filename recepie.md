@@ -1,0 +1,1 @@
+Take the packet of maggie and open it. Then pour one and a half glass of water in a clean stove and heat it until the water starts boiling. Now, put the cake in the boiling water and sprinkle some Maggie massala on top of it. after 2 mins, your maggie is ready.
